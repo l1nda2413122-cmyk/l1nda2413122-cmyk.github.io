@@ -1,1 +1,0 @@
-# lindagan.github.io
